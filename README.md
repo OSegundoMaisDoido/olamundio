@@ -6,3 +6,6 @@ sou o francisco tenho 24 anos, gostaria muito de aprender a dominar esta platafo
 com o livro
 # com quem? 
 com quem quiser
+
+# e ca livros gostas
+dos que houver para ler oh primo
